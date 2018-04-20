@@ -1,3 +1,3 @@
 # Experimentation
 
-Push and pull
+no u
